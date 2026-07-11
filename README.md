@@ -11,3 +11,6 @@ Outside of growing Gooey Audio, David enjoys cycling, surfing, and producing mus
 Gooey Audio began as a small idea in 2018, born from a desire to give back to the live event community—a community built around celebration, connection, and shared experiences. Since then, that idea has grown into an internationally recognized software company serving customers across the United States and in countries around the world.
 
 What started as experiments with simple oscillators and explorations into parametric audio devices has evolved into an expanding ecosystem of creative effects and instruments. Today, Gooey Audio represents not only software development but also a celebration of creativity, connection, and the countless ways sound brings people together.
+
+Not a big influencer or user of socials...but for memes:
+https://www.facebook.com/profile.php?id=61573645959980
