@@ -18,7 +18,7 @@ After college I moved to Los Angeles, where I supported myself waiting tables wh
 
 I didn't even know it had aired until years later, when a classmate in a calculus course laughed and showed me a screenshot of myself on the sitcom.
 
-Eventually I relocated to Las Vegas for a year and completely fell in love with the city's nightlife, energy, and excitement—back before the underground became mainstream.
+After spending a year in the valley cruising down Ventura Blvd, I relocated to Las Vegas for a year and completely fell in love with the city's nightlife, energy, and excitement—back before the underground became mainstream.
 
 Realizing life wasn't going to wait forever, I returned to Southern California and settled in Orange County, where I've spent much of my adult life.
 
