@@ -14,7 +14,7 @@ What I remember most isn't the ambition—it's the little moments. Katy singing 
 
 A few years later, we all heard her voice coming through our radios, because apparently she kissed a girl and she liked it.
 
-After college I moved to Los Angeles, where I supported myself waiting tables while working part-time as a film and television extra. Unfortunately, I even ended up making a brief cameo on *The Big Bang Theory*.
+After college, I moved to Los Angeles, where I supported myself waiting tables while working part-time as a film and television extra. Unfortunately, I even ended up making a brief cameo on *The Big Bang Theory*.
 
 I didn't even know it had aired until years later, when a classmate in a calculus course laughed and showed me a screenshot of myself on the sitcom.
 
@@ -22,7 +22,7 @@ After spending a year in the valley cruising down Ventura Blvd, I relocated to L
 
 Realizing life wasn't going to wait forever, I returned to Southern California and settled in Orange County, where I've spent much of my adult life.
 
-I later graduated from the University of California, Irvine with an engineering degree.
+I later went back to university and graduated from the University of California, Irvine, with an engineering degree.
 
 Over the next several years, I worked in experiential marketing, traveling across the country on campaigns for companies like Snapchat, T-Mobile, and Live Nation.
 
