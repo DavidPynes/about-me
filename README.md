@@ -38,5 +38,7 @@ Near the end of my time in New Zealand, I made a well-timed investment that bet 
 
 That company became Gooey Audio.
 
-If you're curious what I'm building—or just want to follow along for the memes—you can find me on Facebook:
+If you're curious about my crazy life—or just want to follow along for the memes—you can find me on Facebook:
+
+
 facebook.com/profile.php?id=61573645959980
