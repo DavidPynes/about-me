@@ -2,7 +2,7 @@
 
 I grew up in a small suburb of San Diego, where punk rock was part of everyday life.
 
-At night, we could hear artillery being fired from the nearby military base. Down on the boardwalk, Tony Hawk would be skating. Southern California in the '90s was a pretty incredible place to grow up.
+At night, we could hear artillery being fired from the nearby military base. I'm from Carlsbad, home of Tony Hawk and Shaun White. Southern California in the '90s was a pretty incredible place to grow up.
 
 I eventually headed north to Santa Barbara for college, where, to be honest, I never quite fit in. I was something of an outcast. One afternoon my roommates heard me playing guitar alone in my bedroom and insisted I meet a friend's sister.
 
