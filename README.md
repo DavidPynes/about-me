@@ -14,7 +14,7 @@ What I remember most isn't the ambition—it's the little moments. Katy singing 
 
 A few years later, we all heard her voice coming through our radios. Apparently, she kissed a girl... and she liked it.
 
-After college, I moved to Los Angeles, where I supported myself waiting tables while working part-time as a film and television extra. Unfortunately, I even ended up making a brief cameo on *The Big Bang Theory*.
+After college, I moved to Los Angeles, where I supported myself waiting tables while working part-time as a film and television extra. I even ended up making a brief cameo on *The Big Bang Theory*, but it wasn't really what I intended to do...
 
 I didn't even know it had aired until years later, when a classmate in a calculus course laughed and showed me a screenshot of myself on the sitcom.
 
