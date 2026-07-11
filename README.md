@@ -12,7 +12,7 @@ We were just kids, and everyone around us was convinced they were going to be fa
 
 What I remember most isn't the ambition—it's the little moments. Katy singing Frank Sinatra while we drove around in Gabe's Grand Cherokee. Leaving Chumash because, as everyone agreed, "Katy was hungry."
 
-A few years later, we all heard her voice coming through our radios.
+A few years later, we all heard her voice coming through our radios, because apparently she kissed a girl and she liked it.
 
 After college I moved to Los Angeles, where I supported myself waiting tables while working part-time as a film and television extra. Unfortunately, I even ended up making a brief cameo on *The Big Bang Theory*.
 
